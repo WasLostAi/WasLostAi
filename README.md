@@ -1,4 +1,4 @@
-Ai | Web3 | Blockchain | Full Stack  
+Web4 | Ai | Blockchain | Decentralized Tech
 AS/BS IMD AIoP 08/10 | AT/QT | CS/IS  
 Ai -AiSEO - DeFi  PRODUCT CREATOR  
 <!---
